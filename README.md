@@ -1,0 +1,1 @@
+# Microsoft-Power-Platform-Functional-Consultant-PL-200-Questions
